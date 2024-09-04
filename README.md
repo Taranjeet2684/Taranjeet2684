@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning C
 - 💞️ I’m looking to collaborate on new startups 
 - 📫 How to reach me IG @giftyrana786
-- 😄 Pronouns: 
 - ⚡ Fun fact: i am currenty growing on ig through the a reluigious page and have 11k+ followers   
 
 <!---
